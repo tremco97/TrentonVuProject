@@ -1,0 +1,1 @@
+What's rest of the custom methods. Basically picking up from where Trenton went.
